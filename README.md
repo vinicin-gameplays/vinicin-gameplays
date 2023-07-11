@@ -6,9 +6,9 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... school and html/css coder(starter)
-- 🌱 I’m currently learning ... html and css lol
+- 🌱 I’m currently learning ... html css and python
 - 🤔 I’m looking for help with ... programing in general
-- 💬 Ask me about ... games, i'l probably know the answer
-- 📫 How to reach me: ... viniciusvarelli08@gmail.com
-- ⚡ Fun fact: ... im actualy bad at video-games, but i play them a lot
+- 💬 Ask me about ... games, i'll probably know the answer
+- 📫 How to reach me: ... viniciuscarelli08@gmail.com and also my discord :vinicingameplays__
+- ⚡ Fun fact: ... im actualy bad at some video-games, but i play them a lot, lol
 -->
